@@ -1,1 +1,1 @@
-# missing-companiess
+# missing-companies
